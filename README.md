@@ -1,6 +1,6 @@
 Best Nuker 
 
-Support Server : https://discord.gg/jCMWUZmAzY
+Support Server : https://discord.gg/Bfcjaq6FCz
 
 
 By : FuckerX#6288 Atias#7777 
